@@ -42,3 +42,4 @@ VI. Hỗ trợ:
 - Chatbot Poe 
 
 Credits to my GOAT @ZoroBazketArk 
+Sounds from [Anywhere Amidst The Eternal Absence - Stage 1](https://www.youtube.com/watch?v=LAHmZPL19Hc&list=PL0r6OClo31cTMmSFphFXBwV8no34JGTdC). Thanks to @jordinne2201 on Ytb
